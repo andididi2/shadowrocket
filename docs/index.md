@@ -30,4 +30,4 @@ Shadowrocket 跟其它任何科学上网客户端一样都需要添加海外服�
 #### 机场推荐：
 
 - 【 [ORYMI（点击注册）](https://orymi.net/#/register?code=rDsEp8Hf)】 免费观看netflix、disney+、primevideo、hbomax 九折优惠码：LxwSsaay
-- 【 [星辰加速（点击注册）](https://starlinkboost.com/#/register?code=9kfk8enH)】 150G/9元/月 免账号观看disney+ 九折优惠码：3UJuVnqS
+- 【 [星辰加速（点击注册）](https://starlinkboost.com/#/register?code=9kfk8enH)】 150G/9元/月 解锁流媒体及ChatGPT等AI 九折优惠码：3UJuVnqS

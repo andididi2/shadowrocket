@@ -52,7 +52,7 @@ Shadowrocket又名小火箭是iOS系统即苹果手机系统下的代理软件�
 机场推荐购买：
 
 - 【 [ORYMI（点击注册）](https://orymi.net/#/register?code=rDsEp8Hf)】  免费观看netflix、disney+、primevideo、hbomax   九折优惠码：LxwSsaay
-- 【 [星辰加速（点击注册）](https://starlinkboost.com/#/register?code=9kfk8enH)】  150G/9元/月  免账号观看disney+   九折优惠码：3UJuVnq
+- 【 [星辰加速（点击注册）](https://starlinkboost.com/#/register?code=9kfk8enH)】  150G/9元/月  解锁流媒体及ChatGPT等AI   九折优惠码：3UJuVnq
 
 注：跳转链接可能会 **被墙** ，如多次打开失败，请使用代理打开
 
